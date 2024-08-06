@@ -6,5 +6,5 @@ My name is ` #### `
 - ### Throughout Heaven and Earth, I alone am the honored one...Kyoshiki  Murasaki🔵🔴🤞🟣
 
 
-![](https://media1.tenor.com/m/c67XWC0HaEwAAAAd/gojo-toji.gif)
+![](https://media1.tenor.com/m/DSyo0NKX8gMAAAAC/gojo-satoru.gif)
 
